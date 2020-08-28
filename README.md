@@ -10,6 +10,6 @@ Salut à toute l'équipe.
 
 bonjour je me porte bien
 
-Un peu de douceur dans ce monde de brute.L'amour est le pain de vie.
+Un peu de douceur dans ce monde de brute. L'amour est le pain de vie.
 
 Je vous avais dit je controle maintenant vos comptes bancaires.
